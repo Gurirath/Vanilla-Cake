@@ -1,0 +1,1 @@
+The main difference between a white cake and a vanilla cake is that a white cake uses egg whites rather than whole eggs, as the yolks tint the batter yellow. ... Finally, any flavourings you add (vanilla extract, almond extract, etc.) can tint the cake batter too.
